@@ -1,0 +1,1 @@
+claude code is a dump fuck as hell, this is created by github mcp server
